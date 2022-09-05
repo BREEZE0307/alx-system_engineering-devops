@@ -1,1 +1,1 @@
-There is no place like home
+We are symbols, and inhabit symbols
